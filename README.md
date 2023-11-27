@@ -1,2 +1,0 @@
-# JigarKumarSingh.github.io
-Project
